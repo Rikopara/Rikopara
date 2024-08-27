@@ -1,1 +1,1 @@
-- Hello there, My name is Mike and i'm doing writing stuff. Mostly translating games and mods. 
+- Hello there, I'm Riko. I do stuff.
